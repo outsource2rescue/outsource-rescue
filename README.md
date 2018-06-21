@@ -1,0 +1,2 @@
+# outsource-rescue
+O2R offers 24/7 365 Days Outbound &amp; Inbound Call Center Services for your expectation to be met. O2R is a leading call center in Mumbai. With Our Passionate Performance Delivery we stay apart from all others to increase your market levels with advertising your products which will expand your customer base. Our well trained &amp; experienced experts are the strength, along with our advanced analytics capabilities and IT Infra solutions which not only help our clients improve their bottom line but also increase their revenue with business continuity.
